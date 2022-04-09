@@ -1,0 +1,3 @@
+- 👋 ola, eu  sou a LuckyRubi , mas, pode me chamar só de Rubi
+- 👀  Eu  tenho interesse em programar
+- 🌱  Sou iniciante no mundo digital
